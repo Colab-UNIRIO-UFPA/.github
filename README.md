@@ -1,1 +1,1 @@
-# Repositório colaboratvo entre UFPA e UNIRIO
+# Repositório colaborativo entre UFPA e UNIRIO
